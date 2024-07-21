@@ -1,2 +1,2 @@
-# aurangzeb-qureshi.github
+Aurangzeb's chat 
 This is my own class chat
