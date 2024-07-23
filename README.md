@@ -1,2 +1,2 @@
-Aurangzeb's chat 
-This is my own class chat
+Aurangzeb-pixel/Aurangzeb- Welcome to Aurangzeb- Discussions!
+📣 Announcements
